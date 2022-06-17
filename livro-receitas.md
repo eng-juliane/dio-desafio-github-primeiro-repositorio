@@ -2,16 +2,16 @@
 
 ## **Ingredientes**
 
-*400g de carne
-*Pimenta (à gosto)
-*Cominho (à gosto)
-*Sal (à gosto)
-*1/2 cebola ralada
-*1 caixa de creme de leite
-*3 colheres (sopa) de ketchup
-*3 colheres (sopa) de extrato de tomate
-*1 colher (sopa) de nostarda
-*Óleo para fritar
+* 400g de carne
+* Pimenta (à gosto)
+* Cominho (à gosto)
+* Sal (à gosto)
+* 1/2 cebola ralada
+* 1 caixa de creme de leite
+* 3 colheres (sopa) de ketchup
+* 3 colheres (sopa) de extrato de tomate
+* 1 colher (sopa) de nostarda
+* Óleo para fritar
 
 ## **Modo de preparo**
 
